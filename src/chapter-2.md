@@ -1,5 +1,3 @@
-Chapter 2: Defining Visionary and Inclusive Workplace Culture
-=============================================================
 
 Defining a visionary and inclusive workplace culture is essential for creating a work environment that empowers everyone to succeed. In this chapter, we will explore the definition of a visionary and inclusive workplace culture, the elements that make it up, and how it affects employee success.
 

@@ -1,5 +1,3 @@
-Encouraging Work-Life Balance
-==============================================================================
 
 Creating a positive work environment is essential for promoting employee well-being, engagement, and productivity. One important aspect of this is encouraging work-life balance. In this chapter, we will explore the importance of work-life balance and strategies for promoting it in the workplace.
 

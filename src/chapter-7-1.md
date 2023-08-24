@@ -1,5 +1,3 @@
-The Impact of Unconscious Bias on Workplace Culture
-============================================================================================================
 
 Addressing unconscious bias in the workplace is essential for creating a visionary and inclusive workplace culture that empowers everyone to succeed. In this chapter, we will explore the impact of unconscious bias on workplace culture.
 

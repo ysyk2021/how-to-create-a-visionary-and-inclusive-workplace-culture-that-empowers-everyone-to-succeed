@@ -1,5 +1,3 @@
-Identifying Strengths and Weaknesses of Your Workplace Culture
-===========================================================================================================
 
 Assessing your workplace culture is an essential step in creating a visionary and inclusive workplace culture that empowers everyone to succeed. In this chapter, we will explore the importance of assessing your workplace culture and identifying its strengths and weaknesses.
 

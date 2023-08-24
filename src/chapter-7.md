@@ -1,5 +1,3 @@
-Chapter 7: Addressing Unconscious Bias in the Workplace
-=======================================================
 
 Addressing unconscious bias in the workplace is essential for promoting diversity, equity, and inclusion. In this chapter, we will explore the impact of unconscious bias on workplace culture, strategies for addressing it, and creating awareness and promoting education.
 

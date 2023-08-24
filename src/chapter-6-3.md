@@ -1,5 +1,3 @@
-Creating Opportunities for Career Growth
-====================================================================================
 
 In order to create a truly inclusive workplace culture, it is important to provide employees with opportunities for career growth and development. By empowering your employees to succeed, you can help them reach their full potential while also driving innovation and growth within your organization.
 

@@ -1,5 +1,3 @@
-Definition of Inclusive Workplace Culture
-===========================================================================================
 
 Fostering an inclusive workplace culture is essential for creating a visionary and successful workplace that empowers everyone to succeed. In this chapter, we will explore the definition of an inclusive workplace culture.
 

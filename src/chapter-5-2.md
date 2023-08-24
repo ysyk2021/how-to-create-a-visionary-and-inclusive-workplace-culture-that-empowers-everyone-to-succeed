@@ -1,5 +1,3 @@
-The Importance of Inclusion in the Workplace
-==============================================================================================
 
 Fostering an inclusive workplace culture is essential for creating a visionary workplace culture that empowers everyone to succeed. In this chapter, we will explore the importance of inclusion in the workplace.
 

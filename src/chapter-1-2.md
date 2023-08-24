@@ -1,5 +1,3 @@
-Introduction - Benefits of an Empowering Workplace Culture
-=====================================================================
 
 Creating an empowering workplace culture is critical for organizations that want to foster a positive and productive work environment. In this chapter, we will discuss the benefits of having an empowering workplace culture.
 

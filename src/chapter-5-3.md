@@ -1,5 +1,3 @@
-Strategies for Promoting Diversity and Inclusion
-==================================================================================================
 
 Fostering an inclusive workplace culture is essential for creating a visionary workspace culture that empowers everyone to succeed. In this chapter, we will explore strategies for promoting diversity and inclusion in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 9: Creating a Positive Work Environment
-===============================================
 
 Creating a positive work environment is essential for promoting employee well-being, engagement, and productivity. In this chapter, we will explore the role of a positive work environment in workplace culture, strategies for creating one, and the importance of encouraging work-life balance.
 

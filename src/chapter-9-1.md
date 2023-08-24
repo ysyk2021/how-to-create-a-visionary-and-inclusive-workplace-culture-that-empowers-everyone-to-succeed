@@ -1,5 +1,3 @@
-The Role of a Positive Work Environment in Workplace Culture
-=============================================================================================================
 
 A positive work environment is essential for creating a visionary and inclusive workplace culture that empowers everyone to succeed. In this chapter, we will explore the role of a positive work environment in workplace culture.
 

@@ -1,5 +1,3 @@
-Adjusting Workplace Culture Based on Feedback
-==============================================================================================
 
 Measuring workplace culture success is essential for understanding how employees perceive the organization's culture and identifying areas for improvement. In this chapter, we will discuss the importance of adjusting workplace culture based on employee feedback, strategies for doing so, and methods for promoting ongoing improvement.
 

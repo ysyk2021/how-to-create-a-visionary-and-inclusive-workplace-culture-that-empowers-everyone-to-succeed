@@ -1,5 +1,3 @@
-Strategies for Creating a Positive Work Environment
-====================================================================================================
 
 Creating a positive work environment is essential for promoting employee engagement, well-being, and long-term success. In this chapter, we will explore strategies for creating a positive work environment.
 

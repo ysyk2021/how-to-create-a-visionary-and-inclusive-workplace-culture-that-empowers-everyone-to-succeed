@@ -1,5 +1,3 @@
-Chapter 10: Measuring Workplace Culture Success
-===============================================
 
 Creating a visionary and inclusive workplace culture is essential for driving innovation, attracting top talent, and fostering employee engagement and satisfaction. In this chapter, we will explore how to measure workplace culture success.
 

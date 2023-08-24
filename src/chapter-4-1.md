@@ -1,5 +1,3 @@
-Strategies for Building a Visionary Workplace Culture
-========================================================================================================
 
 Building a visionary workplace culture is essential for creating a work environment that empowers everyone to succeed. In this chapter, we will explore strategies for building a visionary workplace culture.
 

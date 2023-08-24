@@ -1,5 +1,3 @@
-Developing Core Values and Mission Statements
-================================================================================================
 
 Developing core values and mission statements is essential for creating a visionary workplace culture that empowers everyone to succeed. In this chapter, we will explore strategies for developing core values and mission statements.
 

@@ -1,5 +1,3 @@
-Defining Visionary and Inclusive Workplace Culture - The Elements that Make up a Visionary and Inclusive Workplace Culture
-=====================================================================================================================================
 
 Creating a visionary and inclusive workplace culture requires understanding the elements that make up such a culture. In this chapter, we will discuss the key elements that are necessary to create a visionary and inclusive workplace culture.
 

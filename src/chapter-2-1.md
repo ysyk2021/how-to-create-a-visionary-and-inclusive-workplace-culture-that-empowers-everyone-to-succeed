@@ -1,5 +1,3 @@
-Defining Visionary and Inclusive Workplace Culture - Definition of Visionary and Inclusive Workplace Culture
-=======================================================================================================================
 
 Defining visionary and inclusive workplace culture is essential to creating a workplace where everyone feels empowered to succeed. In this chapter, we will define what it means to have a visionary and inclusive workplace culture.
 

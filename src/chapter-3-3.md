@@ -1,5 +1,3 @@
-Feedback and Employee Surveys
-==========================================================================
 
 Assessing your workplace culture is an important step in creating a visionary and inclusive workplace culture that empowers everyone to succeed. In this chapter, we will explore the importance of feedback and employee surveys in assessing workplace culture.
 

@@ -1,5 +1,3 @@
-Chapter 5: Fostering Inclusive Workplace Culture
-================================================
 
 Creating an inclusive workplace culture is essential for promoting diversity, equity, and belonging in the workplace. In this chapter, we will define inclusive workplace culture, explore the importance of inclusion in the workplace, and discuss strategies for promoting diversity and inclusion.
 

@@ -1,5 +1,3 @@
-Creating Awareness and Promoting Education
-===================================================================================================
 
 Addressing unconscious bias in the workplace is essential for creating a work environment that values and respects all individuals. In this chapter, we will explore strategies for creating awareness and promoting education around unconscious bias.
 

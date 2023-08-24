@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Workplace Culture
-===========================================
 
 Assessing your workplace culture is an important first step in creating a visionary and inclusive workplace culture that empowers everyone to succeed. In this chapter, we will explore methods for assessing workplace culture, identifying strengths and weaknesses, and gathering feedback through employee surveys.
 
