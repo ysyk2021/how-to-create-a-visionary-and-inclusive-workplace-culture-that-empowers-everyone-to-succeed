@@ -1,5 +1,4 @@
-Chapter: The Elements That Make Up a Visionary and Inclusive Workplace Culture
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a visionary and inclusive workplace culture that empowers everyone to succeed, it is important to understand and integrate certain key elements. These elements lay the foundation for an environment where employees feel valued, respected, and motivated to contribute their best. This chapter will explore the essential aspects of a visionary and inclusive workplace culture.
 

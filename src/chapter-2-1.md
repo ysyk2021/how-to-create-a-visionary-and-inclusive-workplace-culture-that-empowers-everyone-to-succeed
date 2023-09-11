@@ -1,5 +1,4 @@
-Chapter 2: Definition of Visionary and Inclusive Workplace Culture
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A visionary and inclusive workplace culture is a dynamic and empowering environment that fosters innovation, collaboration, and growth while valuing and respecting the diverse perspectives and contributions of all individuals. This chapter explores the key elements and characteristics of a visionary and inclusive workplace culture, highlighting its importance in enabling everyone to succeed.
 

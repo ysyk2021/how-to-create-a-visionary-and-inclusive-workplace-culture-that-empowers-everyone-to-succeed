@@ -1,5 +1,4 @@
-Chapter: Techniques for Effective Team Communication
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective team communication is a crucial element of creating a visionary and inclusive workplace culture. In this chapter, we will explore techniques that organizations can implement to enhance team communication.
 

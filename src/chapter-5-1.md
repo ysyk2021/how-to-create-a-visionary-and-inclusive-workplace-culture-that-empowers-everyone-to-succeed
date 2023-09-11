@@ -1,5 +1,4 @@
-Chapter 2: Definition of Inclusive Workplace Culture
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 An inclusive workplace culture is the foundation for creating a visionary and empowering environment where every individual can thrive and succeed. This chapter delves into the definition of an inclusive workplace culture, exploring its core elements and how it fosters diversity, equality, and belonging.
 

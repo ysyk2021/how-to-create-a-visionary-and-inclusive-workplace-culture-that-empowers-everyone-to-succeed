@@ -1,5 +1,4 @@
-Chapter: Strategies for Creating a Positive Work Environment
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A positive work environment is essential for creating a visionary and inclusive workplace culture that empowers everyone to succeed. In this chapter, we will explore strategies that organizations can implement to cultivate a positive work environment.
 

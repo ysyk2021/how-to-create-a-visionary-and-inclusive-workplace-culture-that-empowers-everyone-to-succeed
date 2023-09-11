@@ -1,5 +1,4 @@
-Chapter 8: Feedback and Employee Surveys
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Feedback and employee surveys are powerful tools for creating a visionary and inclusive workplace culture that empowers everyone to succeed. This chapter explores the importance of feedback, both giving and receiving, and the value of employee surveys in understanding and addressing the needs and experiences of employees.
 

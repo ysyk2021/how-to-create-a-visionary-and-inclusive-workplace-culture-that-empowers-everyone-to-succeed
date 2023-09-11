@@ -1,5 +1,4 @@
-Chapter 6: Creating Awareness and Promoting Education
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating awareness and promoting education is essential for building a visionary and inclusive workplace culture that empowers everyone to succeed. This chapter explores the significance of creating awareness about diversity, inclusion, and unconscious bias, as well as the importance of providing ongoing education and training for employees.
 

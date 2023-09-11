@@ -1,5 +1,4 @@
-Chapter 16: Creating Opportunities for Career Growth
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a visionary and inclusive workplace culture, creating opportunities for career growth is crucial to empower employees and foster their long-term success. This chapter explores strategies and initiatives that organizations can implement to support employees' career development and advancement.
 

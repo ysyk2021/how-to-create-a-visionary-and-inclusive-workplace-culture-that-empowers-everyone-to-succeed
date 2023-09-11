@@ -1,5 +1,4 @@
-Chapter 7: Encouraging Creativity and Innovation
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a visionary and inclusive workplace, creativity and innovation are essential components of success. Organizations that foster a culture of creativity and innovation reap numerous benefits, including enhanced problem-solving abilities, increased productivity, and a competitive edge in the marketplace. This chapter explores strategies for encouraging creativity and innovation to build a dynamic and thriving workplace.
 

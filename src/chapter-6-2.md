@@ -1,5 +1,4 @@
-Chapter 14: Strategies for Empowering Employees
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Empowering employees is crucial for creating a visionary and inclusive workplace culture where everyone has the opportunity to succeed. This chapter explores strategies that organizations can implement to empower their employees and unleash their full potential.
 

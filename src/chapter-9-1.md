@@ -1,5 +1,4 @@
-Chapter 7: The Role of a Positive Work Environment in Workplace Culture
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a positive work environment is essential for building and maintaining a visionary and inclusive workplace culture that empowers everyone to succeed. This chapter explores the principles of a positive work environment and the implications for workplace culture.
 

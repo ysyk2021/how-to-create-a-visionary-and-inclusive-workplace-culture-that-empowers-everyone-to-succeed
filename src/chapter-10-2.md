@@ -1,5 +1,4 @@
-Chapter 10: Analyzing Engagement and Satisfaction Data
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Analyzing engagement and satisfaction data is crucial for creating a visionary and inclusive workplace culture that empowers everyone to succeed. This chapter explores the importance of collecting and analyzing employee engagement and satisfaction data, as well as strategies for interpreting and utilizing the insights gained.
 

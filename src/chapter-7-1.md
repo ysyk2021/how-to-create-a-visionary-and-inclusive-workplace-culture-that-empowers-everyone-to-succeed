@@ -1,5 +1,4 @@
-Chapter 8: The Impact of Unconscious Bias on Workplace Culture
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Unconscious bias is a pervasive issue that can significantly impact workplace culture, hindering organizations' efforts to create a truly visionary and inclusive environment. This chapter explores the impact of unconscious bias on workplace culture and offers strategies for mitigating its effects.
 

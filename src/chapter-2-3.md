@@ -1,5 +1,4 @@
-Chapter 6: How a Visionary and Inclusive Workplace Culture Affects Employee Success
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A visionary and inclusive workplace culture plays a crucial role in shaping the success and well-being of employees. This chapter explores the various ways in which a visionary and inclusive workplace culture positively impacts employee success, enabling individuals to thrive and reach their full potential.
 

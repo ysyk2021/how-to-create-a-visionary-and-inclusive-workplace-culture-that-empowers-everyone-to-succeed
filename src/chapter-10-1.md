@@ -1,5 +1,4 @@
-Chapter 12: Methods for Measuring Workplace Culture Success
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring workplace culture success is essential for creating a visionary and inclusive environment that empowers everyone to succeed. This chapter explores various methods for evaluating and assessing the effectiveness of workplace culture initiatives and strategies.
 

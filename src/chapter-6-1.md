@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Empowering Employees
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a visionary and inclusive workplace culture, empowering employees is of paramount importance. When individuals feel empowered, they are more motivated, engaged, and committed to their work. This chapter delves into the significance of empowering employees and explores strategies that organizations can employ to create an environment where everyone can thrive.
 

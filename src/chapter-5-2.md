@@ -1,5 +1,4 @@
-Chapter 4: The Importance of Inclusion in the Workplace
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Inclusion is a fundamental aspect of creating a visionary and inclusive workplace culture that empowers everyone to succeed. This chapter explores the significance of inclusion in the workplace and its impact on employee engagement, productivity, innovation, and overall organizational success.
 

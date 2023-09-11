@@ -1,5 +1,4 @@
-Chapter 8: Developing Core Values and Mission Statements
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a visionary and inclusive workplace culture, core values and mission statements serve as guiding principles that shape the organization's identity, behavior, and decision-making. This chapter explores the significance of developing core values and mission statements and provides guidance on how organizations can create meaningful and impactful statements that align with their vision and empower employees to succeed.
 

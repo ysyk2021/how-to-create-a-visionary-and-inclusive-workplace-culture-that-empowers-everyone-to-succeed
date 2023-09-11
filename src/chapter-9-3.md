@@ -1,5 +1,4 @@
-Chapter: Encouraging Work-Life Balance
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining work-life balance is crucial for employee well-being and productivity. In this chapter, we will explore strategies that organizations can implement to encourage work-life balance for their employees.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Improving Communication and Collaboration
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building effective communication and collaboration within a workplace is key to creating a visionary and inclusive culture where everyone can thrive. In this chapter, we will explore strategies that organizations can implement to improve communication and collaboration among their employees.
 

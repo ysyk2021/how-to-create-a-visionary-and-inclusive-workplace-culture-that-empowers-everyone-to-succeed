@@ -1,5 +1,4 @@
-Chapter 15: Strategies for Building a Visionary Workplace Culture
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a visionary workplace culture is key to driving innovation, attracting and retaining top talent, and achieving long-term success. This chapter explores strategies that organizations can implement to build a visionary workplace culture that empowers everyone to succeed.
 

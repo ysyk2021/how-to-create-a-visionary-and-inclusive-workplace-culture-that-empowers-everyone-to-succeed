@@ -1,5 +1,4 @@
-Chapter: Strategies for Promoting Diversity and Inclusion
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To create a visionary and inclusive workplace culture that empowers everyone to succeed, organizations must actively promote and foster diversity and inclusion. In this chapter, we will explore a range of strategies that can be employed to promote diversity and inclusion within the organization.
 
